@@ -1,6 +1,6 @@
-#### TWITTER CLONING TOOL 🔥
+# TWITTER CLONING TOOL 🔥
 
-#####RUN 
+##### INSTALL 
 
 
 
