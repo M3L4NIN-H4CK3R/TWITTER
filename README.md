@@ -19,5 +19,9 @@
 * cd TWITTER
 
 
+#### NOTE:
+This tool is paid no free usage.Contact tool owner for key approval💯
+
+
 #### WHATSAPP ME FOR APPROVAL
 * https://wa.me/2349060816396
